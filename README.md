@@ -1,0 +1,1 @@
+# daca-nici-acum-nu-incarca-mor
